@@ -1,9 +1,10 @@
-###### BATFREAKS INTERACT NOW!!!
+###### BATFREAKS INTERACT NOW!!! 🦇
  ***
- ### links  :) 
+ #### links  :0
  
- #### ☆ [strawpage](https://fakegun.straw.page) 
- #### ☆ [interests](https://rentry.co/DisturbMe)
- ###### 
+ ##### ☆ [strawpage](https://fakegun.straw.page) 
+ ##### ☆ [interests](https://rentry.co/DisturbMe)
+ ##### ☆ [queer stuff](https://en.pronouns.page/@fakegun)
  ***
- ![woah](https://files.catbox.moe/o6s4o8.png)
+ ![woah](https://files.catbox.moe/nawh37.png)
+###### @bepoucorp
