@@ -1,6 +1,6 @@
 > [!WARNING]
-> ##### BATFREAKS INTERACT NOW!!! 🦇
- ᨓᨓᨓᨓᨓᨓᨓᨓᨓᨓᨓᨓᨓᨓ
+> ###### BATFREAKS INTERACT NOW!!! 🦇
+ ***
  #### links  :0
  ‿‿‿‿‿‿
 ##### ♡ [strawpage](https://fakegun.straw.page) 
